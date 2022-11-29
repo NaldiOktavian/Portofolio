@@ -1,5 +1,5 @@
 # Portofolio
-Terdiri dari Poster Desain dan Video acara 
+Portofolio Naldi Oktavian 
 
 
 Desain UI Kuma Project
